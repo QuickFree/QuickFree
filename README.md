@@ -1,1 +1,1 @@
-im just a kid lmao
+im just a man lmao
